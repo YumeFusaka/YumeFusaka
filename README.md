@@ -13,7 +13,7 @@
 
 - 🌱 I’m currently learning **🪄Deep Learning 🛡️Frontend**
 
-- 🤝 I’m looking for help with **📄Paper Writing**
+- 🤝 I’m looking for help with **🤺打胶**
 
 - 📝 I regularly write articles on [YumeFusaka](https://yumefusaka.love)
 
