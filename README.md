@@ -15,7 +15,7 @@
 
 - 🤝 I’m looking for help with **🤺打胶**
 
-- 📝 I regularly write articles on [YumeFusaka](https://yumefusaka.love)
+- 📝 I regularly write articles on [YumeFusaka](https://yumefusaka.icu)
 
 - 💬 Ask me about **Anything if you like**
 
